@@ -1,1 +1,1 @@
-# 2nd-Day-
+# 2nd-Day
